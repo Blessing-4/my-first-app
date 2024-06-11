@@ -1,1 +1,1 @@
-# my-first-app my idiot erihmu,type
+# my-first-app my idiot erihmu,type erimu say type anything
